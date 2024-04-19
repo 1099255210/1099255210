@@ -14,5 +14,5 @@
 - Computer Science & Art 🎨
 - Piano, football and Coding 🎹⚽⌨️
 - Games: CS:GO, Apex Legends, Red Alert 2 🔫
-- Bilibili: [**不是吴昊的wh**](https://space.bilibili.com/7405917), Blog: [**This**](https://1099255210.github.io/), Steam: [Hg_](https://steamcommunity.com/profiles/76561198242457022/)
+- Bilibili: [**不是吴昊的wh**](https://space.bilibili.com/7405917) [**wudi_7mi**](https://space.bilibili.com/1361231649), Blog: [**This**](https://1099255210.github.io/), Steam: [Hg_](https://steamcommunity.com/profiles/76561198242457022/)
 - Email [**me**](1099255210@qq.com)
